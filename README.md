@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'm Amelia
 
 <!--
 **TheEye2581/TheEye2581** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
